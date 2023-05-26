@@ -1,0 +1,1 @@
+https://www.amazon.co.jp/エモリー大学クラインバウム教授の生存時間解析-David-Kleinbaum/dp/4860790723/ref=sr_1_4?__mk_ja_JP=カタカナ&crid=O4M4FVWNXFGY&keywords=生存時間分析&qid=1684651466&sprefix=生存時間分析%2Caps%2C197&sr=8-4
